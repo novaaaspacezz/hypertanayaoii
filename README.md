@@ -1,3 +1,3 @@
-![image](https://github.com/user-attachments/assets/1fdf3d65-d91c-4231-a267-03bf3969811b)
+![image](https://github.com/user-attachments/assets/0ecd86c1-cfae-411b-817e-ab65d705032c)
                      
 c + h w2i im mostly near forsaken spot or near friend ok? ok
